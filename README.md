@@ -1,0 +1,2 @@
+# informatika
+ingyenes informatikai urzus
